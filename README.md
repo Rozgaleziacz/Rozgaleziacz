@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Limonek
+- 👀 I’m interested in programing
+- 🌱 I’m currently learning French
+- 🛒this is my discord server: https://discord.gg/8EPVM76FF8
