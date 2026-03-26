@@ -1,5 +1,5 @@
 # 💫 About Me:
-I like bananas, minecraft and python, i don't like official eduvulcan ui.
+I like bananas, minecraft and python, i like vr and love tinkering with electronics.
 
 
 # 💻 Tech Stack:
